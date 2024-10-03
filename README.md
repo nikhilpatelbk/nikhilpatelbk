@@ -2,7 +2,7 @@
 - 👀 I’m interested in development,testing,security based projects..
 - 🌱 I’m currently learning UIUX,python,c,react native,swift...
 - 💞️ I’m looking to collaborate on project developement on any domains
-- 📫 How to reach me instagram id:________________________niki, linkdin id:http://www.linkedin.com/in/nikhil-patel-b-k-82b3a5252
+- 📫 How to reach me,MAIL id: @patelsfilms@gmail.com , linkdin id:http://www.linkedin.com/in/nikhil-patel-b-k-82b3a5252
 - 😄 Pronouns: Mr./Him
 
 <!---
